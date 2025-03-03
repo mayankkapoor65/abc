@@ -2,4 +2,4 @@
 this is my frist repo
 made by the cool boy 
 <br>
-Mayank Kapoor
+Mayank Kapoor(ok dude its clear)
